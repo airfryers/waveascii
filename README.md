@@ -1,0 +1,1 @@
+Get WAVESMILEY on your TERMINAL! All you have to do is send WAVE to 75555 or visit Cetera.uk and get up to 20 products and subscribe for only $9.99 a month. Remember, it's Cetera.uk[.](https://youtube.com/watch?v=ge3pRglj8D8)
